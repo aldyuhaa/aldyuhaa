@@ -1,4 +1,4 @@
-# Hi, I'm aldyuhaa 👋
+# Hi, I'm aldy_uhaa 👋
 
 Saya seorang developer & designer. Selamat datang di profil saya — di bawah ini ada project, statistik, dan cara dukung saya.
 
